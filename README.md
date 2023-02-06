@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @andynagel89 and I am a Technical Recruiter on the Centralized Specialty Recruiting Team at Amazon : hiring for multiple Software Development Engineering roles. Lets connect! 
+- 👋 Hi, I’m @andynagel89 and I am a Technical Recruiter on the Worldwide Amazon Stores Team at Amazon : I enjoy connecting with and learning from incredibly bright talent and helping guide candidates through the interview process. 
 - 👀 I’m interested in Technical Recruiting / Sourcing / Overall passion for helping people / Outside of work, I enjoy hiking, gardeneing, exercise, and live music. 
 - 🌱 I’m currently learning fundementals of coding to relate with the canddidates I am recruiting for at Amazon. 
 - 💞️ I’m looking to collaborate w/ engineers. 
